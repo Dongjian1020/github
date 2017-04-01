@@ -6,3 +6,4 @@ Fix something.
 Today is Saturday.
 Tomorro is sunday.
 Warming To github.com:Dongjian1020/github.git.
+Fuck 哈哈哈哈。。。
