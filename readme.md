@@ -8,4 +8,3 @@ Tomorro is sunday.
 Warming To github.com:Dongjian1020/github.git.
 Fuck 哈哈哈哈。。。
 
-<img src="https://ezgif.com/optimize/ezgif-3-90ce4b8189.gif" width=300>
