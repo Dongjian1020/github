@@ -8,4 +8,4 @@ Tomorro is sunday.
 Warming To github.com:Dongjian1020/github.git.
 Fuck 哈哈哈哈。。。
 
-<img src="https://raw.githubusercontent.com/mortenjust/androidtool-mac/master/Demos/plugging%20in.gif" width=300>
+<img src="https://ezgif.com/optimize/ezgif-3-90ce4b8189.gif" width=300>
